@@ -12,6 +12,8 @@ Atenciosamente,
 
 Vitória Silveira
 
+![adm-ha-vagas](https://github.com/VitoriaSilvaSilveira/VitoriaSilvaSilveira/assets/171566161/d3c946aa-4b6f-427a-8f16-93abb1ded9d2)
+
 ![turtle](https://github.com/VitoriaSilvaSilveira/VitoriaSilvaSilveira/assets/171566161/1bfc6609-5c5c-4477-a528-2ccc688c1b86)
 
 
