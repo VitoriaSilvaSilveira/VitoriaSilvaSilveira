@@ -12,4 +12,6 @@ Atenciosamente,
 
 Vitória Silveira
 
+![turtle](https://github.com/VitoriaSilvaSilveira/VitoriaSilvaSilveira/assets/171566161/1bfc6609-5c5c-4477-a528-2ccc688c1b86)
+
 https://media1.tenor.com/m/9khwbR8xaMcAAAAC/turtle.gif
